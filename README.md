@@ -1,2 +1,0 @@
-# omarh
-cv , personal information
